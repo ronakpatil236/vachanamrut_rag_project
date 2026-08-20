@@ -1,0 +1,19 @@
+# Gadhada I-30: Thoughts that Leave a Lasting Impression
+
+On Posh vadi 1, Samvat 1876 [1 January 1820], Shriji Maharaj was sitting on a large, decorated cot on the veranda outside the room facing north, in line with the mandir of Shri Vasudevnarayan in Dada Khachar’s darbar in Gadhada. He was wearing a white khes and had covered Himself with a white cotton cloth. He had also tied a white feto around His head. Around His neck were garlands of white flowers, and tassels of white flowers were dangling from both of His ears. He was also wearing a string of white flowers around His wrists. At that time, while some munis were singing devotional songs, other munis as well as devotees from various places had gathered before Him in an assembly.
+
+Shriji Maharaj then requested, “Please begin a question-answer dialogue.”
+
+Thereupon Dinanath Bhatt asked, “Maharaj, at times, thousands of thoughts1 arise, yet they do not leave a lasting impression in the mind. At other times, however, only an insignificant thought arises, yet it leaves a strong impression on the mind. What is the reason for this? Also, by what means can a devotee eradicate such disturbing thoughts?”
+
+Shriji Maharaj answered, “The reason is the influence of the gunas. Thoughts occurring when tamogun is predominant induce a state similar to that of deep sleep. Therefore those thoughts do not leave a lasting impression in the mind. When sattvagun prevails, one experiences a state of awareness; so, any disturbing thoughts that occur at that time are dispelled by contemplation. Therefore, those thoughts do not leave a lasting impression either. However, thoughts that arise when rajogun is prevalent do leave a lasting impression in the mind. Therefore, the reason some thoughts do leave a lasting impression in the mind and others do not is due to the prevalence of the various gunas.
+
+“If an intelligent person reflects on this matter and examines his thoughts whenever they arise, he will be able to recognize which guna is predominant in him at that particular time. However, subtle thoughts that arise repeatedly from moment to moment cannot be grasped by anyone. At the most, someone intelligent like yourself may be able to discern two, three, or four of the more superficial thoughts that arise during the course of a day.
+
+“So, if a person examines the predominant guna under whose influence his thoughts arise and contemplates on and imbibes the spiritual discourses which take place in Satsang, then the power of practicing satsang is such that any disturbing thoughts arising under the influence of the gunas are dispelled. Thereafter, becoming free from all doubts, he is able to continuously concentrate on the form of God. Without satsang, however, even if he endeavors in a million other ways, disturbing thoughts and the influence of rajogun and the other gunas will not be eradicated. Therefore, if someone sincerely practices satsang and reflects upon and tries to imbibe the discourses relating to God, then his vile thoughts are eradicated. In this manner, the influence of satsang is extremely powerful. In fact, no other spiritual endeavor can compare with satsang. Why? Because thoughts which cannot be eradicated by any other spiritual endeavor can be removed by engaging in satsang. Therefore, one who wishes to rid the mind of base thoughts related to rajogun should sincerely practice satsang by thought, word and deed. As a result, those thoughts will be eradicated due to the power of satsang.”
+
+Vachanamrut 30
+
+## Footnotes
+
+* 1. Here ‘thoughts’ should be interpreted as worldly thoughts and desires, such as thoughts of indulging in sense pleasures.

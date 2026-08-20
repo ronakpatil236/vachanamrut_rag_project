@@ -1,0 +1,19 @@
+# Gadhada III-36: The Most Extraordinary Spiritual Endeavor for Liberation
+
+On Vaishakh sudi 1, Samvat 1885 [4 May 1829], Swami Shri Sahajanandji Maharaj rode on horseback from Dada Khachar’s darbar in Gadhada and arrived at Lakshmivadi. There, He sat on a platform within the grounds. He was dressed entirely in white clothes. At that time, an assembly of paramhansas as well as devotees from various places had gathered before Him.
+
+Then Shriji Maharaj asked all of the paramhansas and devotees, “What is the most extraordinary spiritual endeavor for the liberation of the jiva, which, if practiced, will surely guarantee liberation and prevent all other obstacles from hindering that liberation? Also, what is the greatest obstacle in that endeavor for liberation, on account of which one would certainly fall from the path of liberation? Please answer both of these questions.”
+
+Everyone answered according to their understanding, but the question was not answered satisfactorily.
+
+So then Shriji Maharaj said in reply, “The most extraordinary spiritual endeavor for liberation is to understand Purushottam Bhagwan, who is seated amidst the mass of light of Brahma, as eternally having a form. Furthermore, understanding that all avatars emanate from Him, one should accept the refuge of the manifest form of God by any means possible. One should also offer bhakti to that God while observing dharma, as well as associate with a Sant possessing such bhakti. That is the most extraordinary spiritual endeavor for liberation. One encounters no hindrances along that path.
+
+“A major obstacle in practicing that spiritual endeavor is keeping the company of shushka-Vedantis. Which obstacles arise when a person keeps their company? Well, initially, he develops affection for them. That affection develops due to the Vedantis’ goodwill. For example, if a person has saved someone’s life by giving him some food during a famine, then that person would naturally develop affection for him. In this way, one develops affection for a person who has helped one. Similarly, those shushka-Vedantis would point out advantages, such as, ‘The atma does not undergo births and deaths, and it is formless. In fact, regardless of the number of sins one may commit, the atma remains immune to those flaws.’ Pointing out such advantages, they denounce the form of God. That is a major obstacle since it leads to the rejection of God’s form. Therefore, one should never keep the company of shushka-Vedantis - they are absolutely ignorant. In fact, there is no greater obstacle on the path of bhakti than this.”
+
+Thereafter, Shriji Maharaj returned to Dada Khachar’s darbar. There, He sat on a large, decorated cot on the veranda outside the east-facing rooms and said, “I have heard all of the scriptures and have formed a principle. I have also travelled throughout this land and seen many realized yogis.” So saying, He narrated the stories of Gopaldasji and other sadhus. He then continued by saying, “I believe that it is impossible to see the atma and Brahma without the upasana and meditation of God’s form. Only through upasana can the atma and Brahma be seen; without it, they cannot be seen. In fact, wishing to see the atma and Brahma without upasana is like attempting to lick the sky with one’s tongue; even if one tries for a hundred years, one will never be able to taste it as sour or salty. Similarly, the atma and Brahma simply cannot be seen without the upasana of the form of God - regardless of the efforts one may resort to. Furthermore, the scriptures’ mentioning of the possibility of atma-realization through nirbij1 Sankhya and Yoga is irrelevant - I have not seen anyone do so, nor is the claim in accordance with My experience. Therefore, the claim is false.”
+
+Vachanamrut 36 259
+
+## Footnotes
+
+* 1. Literally, ‘nirbij’ means ‘seedless’, but here it should be understood to mean ‘without the association of God’.

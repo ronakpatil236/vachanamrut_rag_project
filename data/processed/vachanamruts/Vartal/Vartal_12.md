@@ -1,0 +1,27 @@
+# Vartal-12: Faith Coupled with the Knowledge of God's Greatness
+
+On Posh vadi 2, Samvat 1882 [25 January 1826], Swami Shri Sahajanandji Maharaj was sitting on a decorated cot with a cushion and cylindrical pillow on a wooden platform under the neem tree in the campus of the mandir of Shri Lakshminarayan in Vartal. He was wearing a white khes and had covered Himself with a rose-colored shawl over a white blanket. He had tied a white pagh around His head and was wearing a garland of roses around His neck. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+In the assembly, Shriji Maharaj sat contemplating for quite some time. He then opened His eyes and, looking compassionately at the assembly of devotees, said, “Today I wish to talk to all of you about faith in God, so please listen carefully. Shri Purushottam Bhagwan, whose form is forever divine, is seated in Akshardham, which is as luminous as countless millions of suns, moons, and flames of fire. That same God assumes the avatars of Ram, Krishna, etc., upon this earth for the sake of granting liberation to the jivas. Then, the jiva that develops firm faith in that God by profoundly associating with the Sant progresses spiritually day by day, just like the waxing moon on the second day of the bright half of the lunar month. As the sun’s effect on the moon increases, the waxing moon continues increasing; finally, when Punam arrives, the moon becomes full. Similarly, before developing total faith in God, the jiva is as dim as the new moon of Amas - only as bright as a glow-worm. Then, as a person develops faith coupled with the knowledge of God’s greatness, his jivatma progresses and becomes like the full moon of Punam. Thereafter, his indriyas and antahkaran are no longer capable of dislodging him from his faith. Regardless of the type of action God performs, he does not perceive any fault in God. In addition, one who has faith in God coupled with the knowledge of His greatness becomes a fearless devotee.
+
+“However, if at some time that same devotee harbors doubts in the divine actions and incidents of God, either by the influence of unfavorable places, times, company, scriptures, etc., or due to his identification with the body, then his jiva, which was like the full moon of Punam, becomes like the unlit moon of Amas. Therefore, some minor flaw in oneself will not really harm the jiva very much; but if one somehow doubts the divine actions and incidents of God, or if one somehow develops dislike for God, then that jiva instantly falls from the path of liberation. Just as when the roots of a tree are cut, the tree automatically becomes dry, similarly, a jiva who in any way perceives faults in God can never stay without falling from the Satsang fellowship.
+
+“Moreover, one whose faith in God is weak, despite being in Satsang, still doubts, ‘Who knows whether I will attain liberation or not? When I die, will I become a deity? Or will I become a king? Or will I become a ghost?’ One who does not have absolute faith in God has such doubts. But one who does have absolute faith believes, ‘I have attained liberation ever since the day I attained God; in fact, whoever has my darshan or listens to my talks will also be freed from all of his sins and will attain the highest state of enlightenment.’ So, maintaining such faith coupled with the knowledge of God’s greatness, one should believe oneself to be fulfilled. All of you should constantly be aware of this fact.”
+
+Then Shriji Maharaj said, “Please sing the following devotional song describing God’s greatness: ‘Dhanya Vrundavanavasi vatni chhaya re, jya Hari besta...’.”1 Thereupon, that song was sung.
+
+Then Shriji Maharaj said, “In the same manner as the song, Shri Krishna Bhagwan has also said in the Shrimad Bhagwat:
+
+“So, even one who is born as a tree becomes fulfilled by being associated with God. In fact, even the tree under which God has sat should be understood to be entitled to attain the highest state of enlightenment.
+
+“One who, in his heart, does not have such firm faith coupled with the knowledge of God’s greatness should be known to be impotent - no jiva is ever going to be uplifted by his words. For example, a king who is impotent, who is about to lose his kingdom, and whose family line is about to cease will still not be able to beget a son with his wife. In fact, even if he summons impotents like himself from his entire kingdom and allows them to associate with his wife, she still will not beget a son. Similarly, no one attains liberation by hearing even holy scriptures like the Gita and the Shrimad Bhagwat from one who does not have faith in God coupled with the knowledge of His greatness. Just as death is assured to whoever drinks sweetened milk into which a snake’s venom has fallen, similarly, no one can ever attain liberation by listening to the Gita or the Shrimad Bhagwat from a person who does not have faith in God coupled with the knowledge of His greatness. On the contrary, only harm can come from it.”
+
+Vachanamrut 12 212
+
+## Footnotes
+
+* 1. , ...
+Glorious are the shades of the banyan trees of Vrundavan, where the Lord often sat.
+
+* 2.
+O these [trees] offer at your holy feet - which are worshiped by the chief deity [Indra] and the immortals [i.e. other deities such as Brahma, etc.] - fruits and flowers, and bow before you with their heads [i.e. their branches and leaves] to eradicate their darkness [of ignorance] which caused their birth as trees! - Shrimad Bhagwat: 10.15.5

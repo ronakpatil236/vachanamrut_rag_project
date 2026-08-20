@@ -1,0 +1,7 @@
+# Gadhada II-49: A Great Difference Exists between God's Form and Mayik Forms; Not Becoming Content with Spiritual Discourses, Devotional Songs, etc.
+
+On Fagun sudi 2, Samvat 1880 [3 March 1824], Swami Shri Sahajanandji Maharaj was sitting on a cushion with a cylindrical pillow that had been placed on a large, decorated cot on the veranda outside the west-facing medi in front of the mandir of Shri Vasudevnarayan in Dada Khachar’s darbar in Gadhada. He was dressed entirely in white clothes, and a garland of white flowers also hung from His pagh. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Thereupon Shriji Maharaj said, “There is a great difference between the manifest form of God and mayik forms. However, those who are ignorant and those who are utter fools consider God’s form and mayik forms to be the same. Those who see mayik forms and those who contemplate upon mayik forms spend countless millions of years wandering in the cycle of births and deaths. In comparison, those who do the darshan of God’s form and those who contemplate upon it escape from the bondage of kal, karma and maya; attain the highest state of enlightenment; and become attendants of God. It is for this reason that My mind never becomes satiated with spiritual discourses, devotional songs, talks related to God or meditation of God. All of you should also do the same.”
+
+Vachanamrut 49 182

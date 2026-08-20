@@ -1,0 +1,21 @@
+# Vartal-4: A Fountain
+
+On Magshar sudi 10, Samvat 1882 [20 December 1825], Swami Shri Sahajanandji Maharaj was sitting in the mandir of Shri Lakshminarayan in Vartal. He had donned all white clothes upon His body. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Then Shriji Maharaj said, “Please begin a question-answer session.”
+
+Thereupon Muktanand Swami asked, “For a devotee of God who has taken the path of bhakti, which one spiritual endeavor incorporates all of the other endeavors for liberation?”
+
+Shriji Maharaj replied, “All of the spiritual endeavors for attaining liberation are incorporated in keeping the company - by thought, word and deed - of a Sant who possesses the 30 attributes of a sadhu.”
+
+After replying to the question, Shriji Maharaj asked, “Suppose there is an ekantik bhakta yogi who realizes that the philosophy of both the Sankhya scriptures and the Yoga scriptures is based upon only Vasudevnarayan. By what means does that yogi fix his vrutti on God’s form? How does he control his mind? How does he keep that form fixed in his mind? How does he keep his vrutti facing within? How does he keep his vrutti facing outwards? By which of his yogic abilities does he separate himself from the obstacles of disturbing thoughts and desires as well as from the assimilation of sleep? Please answer these questions.”
+
+Then Muktanand Swami and Gopalanand Swami attempted to answer these questions to the best of their ability, but neither of them was able to give a satisfactory reply.
+
+Therefore, Shriji Maharaj said, “When water goes into a fountain, it first revolves in a spiral and then spurts upwards; in the same way, the vrutti of the jiva revolves in a spiral in the antahkaran, which acts like the fountain, and then spurts out through the five indriyas. A yogi does this in two ways: With one vrutti, he contemplates upon Shri Vasudev Bhagwan who resides in his heart as a witness. The other vrutti he keeps facing outwards through his eyes. With this second vrutti, he contemplates upon God who is outside. He contemplates upon the whole form from head to toe; he does not contemplate separately upon any single part of the body. Just as when one looks at a large mandir, one sees it completely as a whole; or when one looks at a large mountain, one sees it totally; similarly, the yogi sees God’s form in the same way, but he does not see each part of God’s body separately.
+
+“When he beholds the form at a distance from his eyes, if he sees some other object besides God, then he draws that form of God closer and beholds it at the tip of his nose. Even after doing this, if he still sees some object nearby, then he beholds the form of God between his eyebrows. If while doing this he feels lazy or sleepy, then he would again behold the form of God before his eyes. Then, in the same way that a child flies a kite, he would fly a kite in the form of God’s form with a string in the form of his vrutti. He would make it rise upwards, then bring it down again, and then make it sweep from side to side. Using his yogic powers in this way, when he becomes alert, he would again behold the form at the tip of his nose, and from there he would bring it between his eyebrows, and then he would draw it into his heart. Then he would merge together both the form of God that resides in his heart as a witness and the form of God that is outside. At this point, the two vruttis of the antahkaran become one.
+
+“While doing this, if again he feels lazy or sleepy, then he would bring the form outside again using the two types of vruttis. In the same manner as with his eyes, he would use his ears, hands, tongue and nose to perfect yoga. Also, he would behold God’s form with his man, buddhi, chitt and ahamkar. Using the sankhya thought process, he would distinguish himself from his indriyas and antahkaran and would behold only the form of God in his chaitanya. If, while he is beholding the form, whether it be inside or outside, some disturbance regarding worldly affairs obstructs him, then he would remove the problem while continuing to behold the form; but he would not abandon his yogic endeavors because of the disturbance. This is how a yogi with such yogic powers behaves.”
+
+Vachanamrut 4 204

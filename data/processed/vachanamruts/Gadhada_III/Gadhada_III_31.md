@@ -1,0 +1,26 @@
+# Gadhada III-31: A Method of Meditation Using the Example of a Shadow
+
+On the evening of Maha sudi 4, Samvat 1885 [7 February 1829], Shriji Maharaj was sitting on a large, decorated cot on the veranda outside the west-facing rooms of Dada Khachar’s darbar in Gadhada. He had tied a white feto around His head and was wearing a white khes. He had also covered Himself with a red-bordered, white British cloth. At that time, some of the paramhansas were singing devotional songs to the accompaniment of musical instruments, while other paramhansas as well as devotees from various places had gathered before Him in an assembly.
+
+After the paramhansas sang the devotional song ‘Hari mere haralaki lakari...’1, Shriji Maharaj requested, “Please sing ‘Jamunake teera thado...’.2” The paramhansas then began singing that devotional song. In the meantime, Shriji Maharaj sat contemplating.
+
+Then He interrupted, “Please stop singing and allow Me to talk to you.” Continuing, He said, “What I am about to reveal to you is not much, but it can be very beneficial for those who practice meditation. In fact, I have never revealed this matter before.” Then closing His gentle eyes, He began thinking, and thereafter said, “There is a mass of divine light that is like countless millions of moons, suns and flames of fire. That mass of light appears to be like an ocean. The form of Purushottam Bhagwan resides within that luminous, brahmarup abode of God, and He Himself assumes an avatar from that form.
+
+“What is that God like? Well, He transcends both the perishable and the imperishable; He is the cause of all causes; and countless millions of aksharrup muktas worship His holy feet. Out of compassion, that very same God is manifest and present before your eyes in an incarnated form for the purpose of granting ultimate liberation to jivas. Therefore, there is a great similarity between the form residing in the abode of God and this incarnate form of Shri Krishna.
+
+“The vision of a person who meditates on this human form of Shri Krishna develops extreme vairagya for all charming sights other than God and remains engrossed only in the charm of God. Then, he does not notice even the slightest difference between the manifest form of God and the form in His abode. The appearance and age of that form and the appearance and age of this form will appear similar. In addition, the height and build of that form will appear to be exactly the same as that of this form; not even the slightest difference can be discerned between that form and this form. Indeed, there appears to be a total oneness between them. In this manner, there is not even the slightest difference between that form and this form. In fact, both are one.
+
+“When one meditates on that manifest form outwardly, in front of the eyes, there is not the slightest difference between that form and this form. But, if the meditator looks at that same form inwardly, within his eyes, then that same form does not appear to be the same as before. In this case, it becomes the same size as the pupil of the eye. Thereafter, when the meditator introspects and meditates and looks inward at the point of his throat and below, he does not see that same form as the two forms he saw before. He sees that same form as being extremely large, extremely tall, extremely fat, and extremely frightening. For example, the shadow of a man formed by the sun at noon would be almost the same length as the man’s body. But when that same sun sets, the shadow becomes very elongated - it does not remain the same length as the man’s body. Similarly, the form of God also becomes as large as mentioned previously. Then when the person sees that form within the buddhi, which resides in the heart, and within his own jiva within the buddhi, he sees the form as being the size of a thumb. It appears to have two arms or four arms, but he does not see it in the three ways that he saw before. Then, inwardly, the meditator sees the form to transcend his jiva and sees it in the midst of a mass of divine light which is like that of countless millions of suns, moons and flames of fire. Also, he sees that form to be just like the form that he saw before his eyes; he does not discern even the slightest difference between the two.
+
+“Thus, the same form that is in Akshardham - which is gunatit - is manifest. There is no difference between the two. Just as the form in the abode is gunatit, the human form is also gunatit. The difference which was noticed earlier was, in fact, due to the gunas of the different locations within the body; i.e., in the eyes there is sattvagun; in the throat there is rajogun; even the jiva, which resides within the buddhi, is full of gunas.”
+
+After delivering this discourse, Shriji Maharaj said, “Please continue singing the devotional song which you were singing earlier.”
+
+In this manner, Shriji Maharaj revealed Himself as Purushottam using the non-manifest form of God as an example.
+
+Vachanamrut 31 254
+
+## Footnotes
+
+* 1. ...
+* 2. ...

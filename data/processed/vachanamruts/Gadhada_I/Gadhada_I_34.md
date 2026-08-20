@@ -1,0 +1,21 @@
+# Gadhada I-34: Setting the World in Motion
+
+On the morning of Posh vadi 11, Samvat 1876 [11 January 1820], Shriji Maharaj was sitting facing south on a large, decorated cot on the veranda outside the west-facing rooms of Dada Khachar’s darbar in Gadhada. He was wearing a white khes and had covered Himself with a thick, white cotton cloth. He had also tied a white pagh around His head and was wearing garlands of flowers as well. Tassels of flowers and silken threads were dangling from His pagh, and bunches of flowers had also been placed upon both of His ears. At that time, some munis were singing devotional songs to the accompaniment of musical instruments, while other munis as well as satsangis from various places had gathered before Him in an assembly.
+
+Then Shriji Maharaj said, “Please stop the devotional songs and begin a question-answer dialogue.”
+
+Thereupon Brahmanand Swami asked, “God is the haven of all bliss, and He transcends everything, yet the jiva’s vrutti does not become attached to Him. Instead, its vrutti becomes attached to worldly objects that are worthless and perishable. What is the reason for this?”
+
+Muktanand Swami attempted to give an answer, but was unable to do so satisfactorily.
+
+So Shriji Maharaj said, “Please listen as I answer that question. Since the day God created this world, He has set it in motion in such a manner that He will not have to toil again. In fact, He has devised it in such a way that procreation occurs automatically. Men naturally develop affection for women, women naturally develop affection for men, and both naturally develop affection for their offspring. That is God’s maya in the form of affection. The vrutti of one who is not swept away by the flow of that maya remains focused on the form of God. So, a devotee of God develops vairagya by maintaining an aversion for worldly objects. Furthermore, knowing God to be absolutely blissful, he keeps his vrutti focused on God. If, however, one does not cultivate vairagya towards worldly objects and becomes distanced from the form of God, then even great muktas such as Shiv, Brahma, Narad, etc., would be swept away by those worldly objects. For this reason, if one forsakes God and keeps the company of worldly objects, then one’s vrutti will most certainly become attached to those worldly objects. Therefore, devotees of God should not keep affection for anything other than God.”
+
+Thereafter Shriji Maharaj said, “Now it is Muktanand Swami’s turn to ask a question, so please ask.”
+
+Muktanand Swami then asked, “It is extremely difficult for a person to attain God. Moreover, there is no greater benefit and no greater bliss than attaining God. Why, then, do people forsake such immense bliss and strive agonizingly for worthless objects? That is the question.”
+
+Shriji Maharaj said, “Here, I shall answer that. When one ignores the injunctions of God and begins to stray away from them, one suffers. On the other hand, if one acts according to those injunctions, one will experience the true bliss of God. So, in fact, one suffers only to the extent that one transgresses the injunctions of God. Therefore, renunciants should live according to the injunctions that have been prescribed for renunciants, and householders should live according to the injunctions that have been prescribed for householders. One suffers to the extent that one lapses in observing these injunctions. Only when a renunciant observes eight-fold renunciation of women is his vow of brahmacharya considered complete. He suffers to the extent that he deviates from this. Brahmacharya has also been prescribed for householders. For them, brahmacharya constitutes shunning all women except their wives, abstinence from sexual relations with one’s wife on days of observance, and engaging in sexual relations only during appropriate times. Whosoever deviates from these and the other niyams that have been prescribed for renunciants and householders suffers accordingly.
+
+“Therefore, the happiness and misery experienced by a non-believer is determined by his own karmas. As for a devotee of God, whatever misery he suffers is due to negligence in observing God’s injunctions for the sake of worthless objects; and whatever happiness he does experience is a result of following the injunctions of God.”
+
+Vachanamrut 34

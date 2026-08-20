@@ -1,0 +1,19 @@
+# Ashlali-1: Loss Suffered by Incompletely Realizing God's Form
+
+On Chaitra sudi 2, Samvat 1882 [9 April 1826], Swami Shri Sahajanandji Maharaj left Amdavad with great pomp and festivity and reached Ashlali in the evening. There, He was accommodated in a mango grove north of the village and was seated on a dais. He was dressed entirely in white clothes. Also, He was wearing beautiful garlands of flowers around His neck, and tassels of flowers were hanging from His pagh. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Shriji Maharaj then said to Muktanand Swami, Brahmanand Swami and all of the other sadhus, “Please listen, I wish to say something. Whoever incompletely realizes the nature of God suffers a great loss. That is, that person cannot experience the true bliss of Purushottam Bhagwan - who we also call Shri Krishna, Shri Vasudev, Shri Narnarayan, Parabrahma and Shri Narayan - nor can he become an ekantik bhakta. Thus, one should consolidate one’s gnan by profoundly associating with an Ekantik Bhakta of God who has such gnan. This is because, without the true gnan of God, even the prajapatis and other creators of the cosmos have to repeatedly take birth along with the creation and then ultimately merge back into maya. But they do not attain Akshardham, the abode of Shri Purushottam Bhagwan. The reason for this is a flaw in their understanding.”
+
+Thereupon all of the munis asked, “Maharaj, please explain this flaw in their understanding.”
+
+Shriji Maharaj said, “Very well. Please listen as I explain their flaws. First of all, they consider the strength of their own actions but not the strength of one’s refuge in God to be instrumental in their liberation. Secondly, they do not realize that becoming aksharrup and serving Shri Purushottam Narayan is in itself liberation. This is their second mistake. Their third mistake is that they believe the innumerable avatars of God such as Ram, Krishna, etc., to be a part of God.1 This is a grave mistake on their part. Fourthly, at the time of a previous death, they had a thought in their minds, ‘How are these brahmands created? It would be good to see for once.’ Seeing their desire, God engaged them in the creation of the brahmands. Only when they realize true gnan by profoundly associating with the Ekantik Bhakta of God will they become brahmarup and attain the abode of God, and only then will they become eternally happy. Therefore, a devotee of God should desire nothing but the service of God.”
+
+Shriji Maharaj then explained, “There are three types of devotees, and they can be recognized by their characteristics: He who worships God with the intention of earning powers to create the world is known as ‘aishvaryarthi’. He is the lowest type of devotee. He who worships God only to experience the atma is known as a ‘kaivalyarthi’. He is of an intermediate level. However, he who has a constant and singular resolve for the service of the manifest form of Purushottam Bhagwan is known as a ‘bhagwat-nishtarthi’. He is the best devotee of all. Because all of us have the conviction of the incarnate form of Shri Narnarayan, we are all undoubtedly the best.”
+
+All who had gathered in the assembly were overjoyed hearing these words of Shriji Maharaj.
+
+Vachanamrut 1 269
+
+## Footnotes
+
+* 1. God is indivisible. Therefore, Ram, Krishna and other avatars of God are not a part or piece of God. However, the avatars are either a jiva or ishwar entity that incarnates only when God enters the entity and empowers it to incarnate. To believe the avatars are a part of God is a grave mistake.

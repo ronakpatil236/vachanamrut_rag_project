@@ -1,0 +1,24 @@
+# Sarangpur-17: Differences among Muktas; The Branch of a Tamarind Tree
+
+On the evening of Bhadarva sudi 6, Samvat 1877 [13 September 1820], Shriji Maharaj was sitting facing north on a large, decorated cot on the veranda outside the rooms of Jiva Khachar’s darbar in Sarangpur. He was dressed entirely in white clothes. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Thereupon Shriji Maharaj said, “As the vision of a person who worships God becomes increasingly subtle, he realizes the unlimited nature of God, and he increasingly realizes the greatness of God. When that devotee identifies himself with the body, he sees God as the witness of his waking, dream and deep sleep states. Later, when he realizes himself as transcending the waking, dream and deep sleep states, he realizes God as transcending them too. Then, as his vision becomes increasingly subtle, he realizes God as being far beyond himself and understands the greatness of God even more. Then, as his vrutti attaches itself more and more to God with love, his upasana of God becomes even more firmly established.
+
+“For example, ants, birds, men, cattle, horses, elephants, large crocodiles and fish all drink water from the ocean and become healthy; yet the ocean’s level is not even slightly reduced. Thus, the greater the capacity of the being, the more it realizes the vastness of the ocean.
+
+“Here is another example: a mosquito, a sparrow, a kite, a hawk, an analpakshi and Garud all fly in the sky, yet to all of them, the sky is limitless. However, the greater the strength of their wings, the more they realize the vastness of the sky and their own inferiority.
+
+“Similarly, a devotee whose upasana is like that of Marichi and the other prajapatis can be compared to the mosquito. A devotee whose upasana is higher, like that of deities such as Brahma, can be compared to the sparrow. A devotee whose upasana is higher still, like that of deities such as Virat-Purush, can be compared to a kite. A devotee whose upasana is higher still, like that of Pradhan-Purush, can be compared to a hawk. A devotee whose upasana is still higher, like that of pure Prakruti-Purush, can be compared to an analpakshi. A devotee whose upasana is even higher, like that of an akshar-mukta in Akshardham, is like Garud. As the powers of these devotees increase, they realize the greatness of God more and more. Moreover, as their own powers increase, their master-servant relationship with God is also consolidated.
+
+“Also, when the person engaged in worship identified himself with the jiva, the jiva possessed the luminosity of a firefly. As he continued worshipping God, barriers were gradually overcome, and he became increasingly luminous; first like an oil lamp, then like a torch, then like the flames of a fire, then like the flames of a forest fire, then like lightning, then like the moon, then like the sun, then like the fire of dissolution, and finally, he became as radiant as the transcendental light.1
+
+“In this manner, the luminosity, powers and bliss of such a devotee constantly increase. In the example, the succession from firefly to transcendental light refers to the differences among the level of the muktas.2 As one reaches a higher spiritual state, God’s greatness is realized to a greater extent and one attains a higher mukta-level.”
+
+So saying, Shriji Maharaj bid ‘Jai Sachchidanand’ to everyone and stood up. Then, holding a branch of the tamarind tree, He stood facing east and said, “From here, the full moon appears like a small plate. But as one approaches it, it appears to get increasingly larger. Then, when one comes extremely close to it, it becomes so vast that one is unable to see its limits. Similarly, as obstacles in the form of maya are overcome, and one increasingly attains the proximity of God, one realizes the unlimited greatness of God, and one’s sense of servitude towards Him is increasingly strengthened.”
+
+Vachanamrut 17 95
+
+## Footnotes
+
+* 1. Here, ‘transcendental light’ refers to the light of an akshar-mukta.
+* 2. Here, the difference in the level of the muktas does not refer to the aksharmuktas. The aksharmuktas in Akshardham all experience the same bliss of God. However, the difference here refers to the muktas residing in the various other abodes of God, such as Golok, Vaikunth, etc. Those devotees who understood Shriji Maharaj to be like the other avatars reached the abodes of those avatars and became the muktas of those abodes; hence, they attained the level of those abodes. Only those who understood Shriji Maharaj to be supreme and the cause of all the avatars reach Akshardham, where all muktas attain a similar status.

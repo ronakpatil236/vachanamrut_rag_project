@@ -1,0 +1,25 @@
+# Gadhada II-45: Expelling the Horde of the Fifty-One Bhuts
+
+On Posh vadi 1, Samvat 1880 [17 January 1824], Swami Shri Sahajanandji Maharaj was sitting on the veranda outside the east-facing rooms of Dada Khachar’s darbar in Gadhada. He was dressed entirely in white clothes. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Thereupon Shriji Maharaj said, “All of you munis, brahmacharis, satsangi householders, parshads and Ayodhyawasis are said to be Mine. So if I was not vigilant in having all of you behave accordingly, and if you were to then behave waywardly, I would not be able to bear this. In actual fact, I do not want even the slightest imperfection to remain in those who are said to be Mine. However, you should also remain very vigilant, because if you allow even a little carelessness, your footing in Satsang will not last.
+
+“Furthermore, as you are devotees of God, I do not wish to leave any form of improper swabhavs within your hearts. Nor do I wish to allow any trace of any of maya’s three gunas, ten indriyas, ten prans, four antahkarans, five bhuts, panchvishays, and the deities of the 14 realms to remain. Instead, I wish to make all of you such that you offer bhakti to God realizing your true form to be the atma, which is characterized by eternal existence and is free from all of these mayik flaws. In fact, I wish not to allow any influence of maya to remain within you. If all of your imperfections are not eradicated in this very lifetime, then I will take you to Badrikashram, where, by performing austerities, all of your worldly desires will be burnt to ashes; or I will take you to Shwetdwip and burn all of your worldly desires to ashes by having you perform austerities with the niranna-muktas. But I do not wish to allow any affection for anything except God to remain. For this reason, then, all of the devotees and munis should remain vigilant.”
+
+Having delivered this discourse, Shriji Maharaj retired to His residence.
+
+Later, in the evening of that same day, Shriji Maharaj presided over another assembly that He had gathered together. After the arti was completed, He said, “By performing sattvik karmas, one goes to Devlok; by performing rajasik karmas, one goes to Mrutyulok; and by performing tamasik karmas, one is consigned to the lower realms. But someone may doubt, ‘If by performing rajasik karmas one attains Mrutyulok, then that suggests that all those on Mrutyulok should experience the same joys and miseries.’ So, the answer to this is that although there is only one particular rajogun, countless types of distinctions are created within it due to the influence of differing places, times, etc. Thus, it is not the case that there is one, certain type of rajasik karma. Rather, the type of karma performed varies according to the factors of place, time, company and action.
+
+“Having said this, though, if one performs some karma which displeases the Sant of God or an avatar of God, one will suffer miseries similar to those of Yampuri in this very body here in Mrutyulok. On the other hand, if one performs a karma by which God and His Bhakta are pleased, then, in this very body, one will enjoy bliss similar to that of attaining the highest state of enlightenment.
+
+“Furthermore, if one were to displease God and His Sant, then despite the fact that one had performed such karmas that would have led one to swarg, all those karmas would be destroyed and one would instead be consigned to narak. Conversely, if one were to perform a karma by which God and His Sant are pleased, then even if one were destined to fall into narak, all of one’s impure karmas would be destroyed and one would instead attain the highest state of enlightenment. Therefore, those who are wise should behave only in a manner that would please God and His Bhakta. One should even advise all of one’s relatives, ‘We should behave only in a manner that would please God and His Sant and in a manner by which they would shower their grace upon us.’
+
+“In fact, Agni must have also pleased God and His Sant, because only then would he have attained his light. Surya, Chandra and all others who possess light, must also have pleased God and His Sant by performing pious karmas, for only then would they have attained such light. In fact, all of those who are happy in Devlok and Mrutyulok must have pleased God and His Sant, because it is by their grace that they are happy.
+
+“Therefore, one who aspires for the good of one’s own atma should observe the swadharma prescribed in the sacred scriptures and do only that which pleases God and His Sant.”
+
+Vachanamrut 45 178
+
+## Footnotes
+
+* 1. The fifty-one bhuts are the three gunas, the ten indriyas, the ten prans, the four antahkarans, the five bhuts, the five types of sense objects, and the presiding deities of the fourteen loks.

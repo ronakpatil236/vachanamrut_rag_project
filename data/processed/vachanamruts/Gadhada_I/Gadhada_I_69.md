@@ -1,0 +1,15 @@
+# Gadhada I-69: The Dharma of a Wicked Person and a Sadhu
+
+On Chaitra sudi 12, Samvat 1876 [26 March 1820], Swami Shri Sahajanandji Maharaj was sitting on a large, decorated cot on the veranda outside the west-facing rooms in front of the mandir of Shri Vasudevnarayan in Dada Khachar’s darbar in Gadhada. He was dressed entirely in white clothes. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Following the evening arti of Shri Vasudevnarayan and the chanting of the ‘Narayan’ dhunya, Shriji Maharaj asked the munis, “What exactly is dharma? Please base your reply on the scriptures. The question arises because even the kings of the past who indulged in violence did not harm those who took their refuge, nor did they allow others to harm them. So, is the sin committed by killing others considered the same as the sin of killing a person who has sought one’s refuge?”
+
+The munis attempted to reply according to their own understanding, but due to queries raised by Shriji Maharaj, no one was able to offer a satisfactory answer. All of the munis then said, “Maharaj, we would like to put the same question to You. Because, violence performed on animals as part of a sacrifice or some other ritual is considered to be dharma; but non-violence is also considered to be dharma. Please clarify this.”
+
+Thereupon Shriji Maharaj explained, “Dharma involving violence is for the attainment of dharma, arth and kam. Moreover, that dharma which permits violence is, in fact, for the purpose of limiting violence. Non-violence, on the other hand, is for the attainment of liberation - which is the dharma of a sadhu. Dharma involving violence is for fulfilling worldly desires, but it is not for the attainment of liberation. Non-violence, however, is solely for the purpose of attaining liberation.
+
+“Therefore, for both householders and renunciants, only non-violence has been cited for the attainment of liberation. For example, King Uparicharvasu ruled over a kingdom and still followed a non-violent lifestyle. Therefore, a sadhu should not bear malice to anyone by thought, word or deed. Neither should he harbor any form of arrogance, but instead, he should behave as a servant of servants with all.
+
+“In comparison, having a hostile personality is the dharma of a wicked person, and behaving in a calm manner is the dharma of a sadhu. Someone may then ask, ‘How is it possible to maintain the virtues of a sadhu while trying to make thousands of people conform to their niyams?’ Well, the reply to that question is that King Yudhishthir reigned over a kingdom stretching for thousands of miles, yet he managed to maintain the virtues of a sadhu. Conversely, there may be thousands like Bhimsen who intimidate others and are unable to change their ways despite being reprimanded. In fact, there is no shortage of people with such an arrogant nature; there are countless such people. To be a sadhu, though, is indeed very difficult.”
+
+Vachanamrut 69

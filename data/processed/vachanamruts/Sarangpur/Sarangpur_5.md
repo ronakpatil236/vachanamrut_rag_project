@@ -1,0 +1,31 @@
+# Sarangpur-5: Anvay-Vyatirek
+
+On Shravan vadi 9, Samvat 1877 [1 September 1820], Swami Shri Sahajanandji Maharaj was sitting on a large, decorated cot on the veranda outside the north-facing rooms of Jiva Khachar’s darbar in Sarangpur. He was dressed entirely in white clothes. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Thereupon Muktanand Swami asked a question, “Which method of eradicating worldly desires is so powerful that that method alone incorporates all other means?”
+
+Shriji Maharaj replied, “The worldly desires of a person who has the following four attributes in his heart will be eradicated: Shraddha, faith in the words of God and His devotees, affection for God and the knowledge of God’s greatness. Of these, if only the knowledge of God’s greatness is extremely powerful and the other three - shraddha, faith and affection - are weak, then they will also become extremely powerful. On the other hand, although one may appear to have intense bhakti, if it is not coupled with the knowledge of God’s greatness, it will ultimately be destroyed. For example, a ten- or twelve-year-old girl who has contracted tuberculosis will certainly die before she matures into a young woman. Similarly, one whose bhakti lacks the knowledge of God’s greatness will find that his bhakti will be destroyed before it matures.
+
+“Furthermore, if a person has bhakti for God in his heart coupled with the knowledge of God’s greatness, then even though he does not possess any other redemptive virtues, they will still develop in his heart. Conversely, if a person does not have bhakti in his heart coupled with the knowledge of God’s greatness, then even though he possesses redemptive virtues such as tranquility, self-restraint, etc., they are as good as being absent because they will ultimately be destroyed.
+
+“Therefore, even if one possesses only bhakti coupled with the knowledge of God’s greatness, the worldly desires which one harbors will still be eradicated, and all of the redemptive virtues will develop and reside within one’s heart. Therefore, bhakti of God coupled with the knowledge of His greatness is the greatest and most steadfast means to eradicate one’s worldly desires.”
+
+Then Swayamprakashanand Swami asked, “What is the anvay nature of the jiva, and what is its vyatirek nature? What is the anvay nature of ishwar, and what is its vyatirek nature? What is the anvay nature of Akshar, and what is its vyatirek nature? How should Purushottam Bhagwan be known in His anvay form, and how should He be known in His vyatirek form?”
+
+Shriji Maharaj explained, “When the jiva is said to be the experiencer of births and deaths, that should be known as the jiva’s anvay form. When the jiva is said to be uncuttable, un-pierceable and eternal, that should be known as the jiva’s vyatirek form.
+
+“When ishwar behaves as one with its three bodies of virat, sutratma and avyakrut, that should be known as the anvay form of ishwar. When ishwar is described as being characterized by eternal existence, consciousness and bliss, and as transcending its body in the form of the brahmand, that should be known as the vyatirek form of ishwar.
+
+“That which is the inspirer of Prakruti-Purush and all of the deities such as Surya, Chandra, etc., should be known as the anvay form of Akshar. The form in which there is not even a trace of the influence of Prakruti-Purush, etc., and in which only Purushottam Bhagwan resides - that should be known as the vyatirek form of Akshar.
+
+“The anvay form of Purushottam is that which resides in the hearts of both bound jivas and released jivas as their witness; yet, He remains untouched by such states of bondage and release. In the same way, He also resides in the hearts of ishwars and Akshar as their witness; yet, He remains devoid of their influence. The form that transcends jiva, ishwar and Akshar should be known as the vyatirek form of Purushottam. These are the anvay-vyatirek natures of the various entities.”
+
+Again, Muktanand Swami asked, “Does the importance of God’s darshan, the importance of chanting His holy name, and the importance of the touch of God apply only to the devotees of God, or does it also apply to all beings?”
+
+Shriji Maharaj answered, “The modes of darshan, chanting, etc., are certainly different, so please listen as I explain them to you. When a person does darshan of God with his eyes coupled with his mind, then that darshan would be such that it could not be forgotten, even if he tried to forget it. In the same manner, if the skin is coupled with one’s mind when one touches God, then that touch will also not be forgotten. For example, the Shrimad Bhagwat narrates the words spoken by the gopis to God: ‘O God! Since the day we touched your feet, all of the pleasures of the world, besides you, have seemed like poison to us.’ Likewise, when all of the respective gnan-indriyas are coupled with the mind and are then engaged in darshan, listening, touching, etc., the experiences are never forgotten.
+
+“To give another example, an ignorant person who indulges in the vishays when the five gnan-indriyas are coupled with his mind can never forget them, even if he wants to forget them. Similarly, only that darshan of God, listening to the talks of God, etc., which have been done with the mind engaged should be known as darshan, listening, etc. On the other hand, a person may do darshan, but it is as good as not having done darshan at all. Why? Because at the time he was doing darshan, his mind was wandering elsewhere. Consequently, he will certainly forget that darshan within a day, or maybe within five days, or maybe within 50 days, or maybe within six months, or maybe after one year, or after five years. Ultimately, it will not remain.
+
+“Therefore, only one who engages the five gnan-indriyas - the eyes, ears, etc. - coupled with the mind, in the darshan, touch, etc., of God with intense love and the understanding of His greatness attains the fruits of that darshan, touch, etc. Others who have the darshan, touch, etc., of God attain only the seeds. But the real importance applies only to those who engage in the darshan, touch, etc., together with the mind.”
+
+Vachanamrut 5 83

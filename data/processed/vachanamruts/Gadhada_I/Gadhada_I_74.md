@@ -1,0 +1,11 @@
+# Gadhada I-74: Understanding Is Measured in Times of Hardship
+
+On the morning of Vaishakh sudi 11, Samvat 1876 [24 April 1820], Swami Shri Sahajanandji Maharaj was sitting on a large, decorated cot on the platform under the neem tree in front of the mandir of Shri Vasudevnarayan in Dada Khachar’s darbar in Gadhada. He was dressed entirely in white clothes. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Shriji Maharaj then began, “The extent of one’s vairagya and one’s understanding can be measured only when one encounters vishays, or in times of some hardship, but not otherwise. That being so, what can be said about situations of extreme prosperity or hardship? For example, everyone must have realized the state of their own antahkarans during the minor difficulty that recently befell Dada Khachar.”
+
+Thereupon Muktanand Swami commented, “It is but natural that in one’s heart, one sides with God’s devotees. That too, with the understanding that if the Satsang fellowship flourishes, many people will benefit; but if the Satsang fellowship suffers a setback in any way, no one will benefit. That is why joy and grief are experienced.”
+
+Shriji Maharaj then explained, “We are the servants of Shri Krishnanarayan; so we should be pleased with whatever pleases Him. If it is His wish, then Satsang will flourish; and if He wishes for it to decrease, then it will decrease. Moreover, if God seats us on an elephant, we should remain happy by sitting on an elephant; and if He seats us on a donkey, then we should remain happy by sitting on a donkey; but we should not harbor the slightest affection for anything except the holy feet of God. Thus, in whatever way Satsang develops according to His wish, we should remain content. If He so wishes, let everyone in the world become satsangis; or if He so wishes, let all satsangis cease to remain satsangis. But in no way should we harbor any joy or grief in our minds, because everything happens by the will of God. So, just as a dry leaf is blown in the air according to the direction of the wind, we should also remain dependent on Him and joyfully worship God, not allowing any frustration to enter our minds.”
+
+Vachanamrut 74

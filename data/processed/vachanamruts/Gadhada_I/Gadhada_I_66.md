@@ -1,0 +1,24 @@
+# Gadhada I-66: Misinterpreting the Words of the Scriptures; The Four Emanations of God
+
+On Fagun vadi Amas, Samvat 1876 [14 March 1820], Swami Shri Sahajanandji Maharaj was sitting on a large, decorated cot on the platform outside the east-facing rooms of Dada Khachar’s darbar in Gadhada. He was wearing a khes with a black border and had covered Himself with a white blanket. He had also tied a white feto around His head. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Thereupon Shriji Maharaj said, “The Shrimad Bhagwat describes Vasudev, Sankarshan, Pradyumna and Aniruddha - the four emanations of God. In some places they are described as sagun, whereas in other places they are described as nirgun. The term nirgun is used in reference to Vasudev Bhagwan, and the term sagun is used in reference to Sankarshan, Aniruddha and Pradyumna. However, when described as nirgun, the minds of the listener and the reader are baffled, and they draw the conclusion that God does not possess a form. This, however, is their misunderstanding.
+
+“Besides, the words of the scriptures cannot be understood in their true context by anyone except an ekantik bhakta. Which words? Words such as: ‘God is formless’, ‘universally pervasive’, ‘luminous’ and ‘nirgun’. On hearing such descriptions, a fool concludes that the scriptures describe God as being formless. On the other hand, an ekantik bhakta realizes, ‘When the scriptures describe God as being formless and nirgun, they are referring to the fact that He does not possess a mayik form or mayik attributes. In reality, His form is forever divine, and He possesses countless redemptive virtues.’
+
+“There is also a reference to God being an immense mass of divine light. However, if there is no form, then there can be no light either; therefore, that light must definitely be from that form. Take, for example, the form of Agni. When flames emanate from his form, only the flames - not the form of Agni - are seen. A wise man, however, realizes that the flames are definitely emanating from Agni’s form. Similarly, water emanates from the form of Varun. Although only the water - not the form of Varun - is visible, a wise man realizes that the water emanates from Varun’s form. In the same way, having the intensity of a million suns, the divine light, which is like brahmasatta, is the light of the form of Purushottam Bhagwan.
+
+“The scriptures also state, ‘A thorn is used to remove a thorn. Thereafter, both are discarded. Similarly, God assumes a physical body to relieve the earth of its burdens. Then, having relieved the earth of its burden, He discards that physical body.’1 Hearing such words, the foolish are misled into the understanding that God is formless; they fail to realize the form of God as being divine.
+
+“An ekantik bhakta, however, has the following understanding: To fulfill Arjun’s pledge, Shri Krishna Bhagwan, with Arjun, left Dwarika on his chariot to fetch the Brahmin’s son. Crossing Mount Lokalok, they cut through maya’s veil of darkness with the Sudarshan Chakra. Driving the chariot through that darkness, they entered a mass of light. There, they collected the Brahmin’s son from Bhuma-Purush before returning. But it was only because Shri Krishna Bhagwan’s form was divine that, due to the power of that divinity, the wooden chariot and the horses - despite being composed of the five bhuts - all became divine and like chaitanya; i.e., they transcended maya. Had their forms not become divine, they would never have been able to transcend maya. After all, everything that has evolved from maya ultimately merges into maya and can never reach Brahma,2 which transcends maya. Thus, it was due to the powers of God’s form that such mayik objects became non-mayik. A fool, however, realizes God’s form as mayik, whereas an ekantik sadhu realizes God’s form to transcend Akshar and also realizes Purushottam Bhagwan - who possesses a definite form - as the atma of countless millions of brahmarup muktas, as well as of Akshardham.
+
+“Therefore, regardless of which scriptures are being read, if they describe God as being ‘nirgun’, one should realize that they are merely extolling the glory of God’s form; but, in fact, God always possesses a definite form. One who realizes this is known as an ekantik bhakta.”
+
+Vachanamrut 66
+
+## Footnotes
+
+* 1. This is in reference to the verse:
+Yayaharad-bhuvo bharam tam tanum vijahavajaha; Kantakam kantakeneva dvayam chapeeshituhu samam. - Shrimad Bhagwat: 1.15.34
+
+* 2. Here ‘Brahma’ should be understood as ‘Aksharbrahma-dham’ or ‘Akshardham’.

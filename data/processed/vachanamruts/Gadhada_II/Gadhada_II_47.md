@@ -1,0 +1,24 @@
+# Gadhada II-47: A Split in the Pruthvi Down to Patal
+
+On Maha vadi 10, Samvat 1880 [24 February 1824], Swami Shri Sahajanandji Maharaj was sitting on the veranda outside the east-facing rooms of Dada Khachar’s darbar in Gadhada. He was dressed entirely in white clothes and had covered Himself with a yellow blanket made of chhint. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Thereupon Shriji Maharaj said, “If a person has a group of sadhus staying with him, and if he can sincerely look after them in a gracious manner, those sadhus will happily stay with him. However, if he does not know how to look after them, they will not stay with him.
+
+“Furthermore, if a sadhu is eager to attain liberation, he would become increasingly overjoyed when I do something that may upset him or when I denounce the vishays. For example, Muktanand Swami has contracted tuberculosis, and so he is restricted from eating yogurt, milk and any sweet or fried foods. A wise person would think to himself, ‘This disease has restricted all tasty food and drink; thus I wonder if I have actually attained the company of a great sadhu in the guise of tuberculosis!’ This is how a wise person would view the situation. Why? Because a person’s desires regarding the genitals and the stomach are, in fact, characteristics of an unholy person. But tuberculosis is such a disease that it removes both flaws. Thus, an aspirant should not feel hurt when the Satpurush, in the same manner as that disease, denounces vishays.
+
+“Also, if a person is staying with a senior sadhu due to the temptation of obtaining tasty food or drink, or due to the temptation of obtaining nice clothes, or due to the temptation of collecting objects that he likes, then he should not be considered a sadhu at all. Instead, he should be known to be an extremely wretched person and like a dog. One who has such corrupt intentions will ultimately fall from Satsang.
+
+“Furthermore, if someone should give a sadhu a nice object, one who becomes jealous as well as one who is greedy for the panchvishays are both much worse than one who has committed the five grave sins. Therefore, one who is wise should remain in the company of sadhus and not harbor any impure intentions within. After all, this assembly is like the assembly in Badrikashram and Shwetdwip; if a person’s worldly desires are not eradicated here, where else will he be able to eradicate them?
+
+“Moreover, our jivas have previously indulged in the panchvishays through countless bodies, as deities, humans, etc. Nevertheless, we have not been content with those vishays. Therefore, now that we are devotees of God, indulging in the vishays for a further year, or two years, or maybe even five years will still not fulfill us. It is as if the earth has been split down to Patal, and we begin to fill it with water - obviously, it can never be filled. Similarly, the indriyas have never become satisfied by the vishays and they never will be. So, now, one should eradicate one’s attachment to the vishays. Furthermore, one should consider the virtues of the sadhu who speaks to one harshly and should not think ill of him. This is explained in the following devotional song composed by Muktanand Swami: ‘Shooli upar shayan karave toya sadhune sange rahiye re...’.1 Thus, one should seize this opportunity and die only after eradicating one’s impure desires; one should not die with one’s impure desires still remaining.
+
+“Having said this though, one should keep the following desire: ‘After leaving this body, I want to become brahmarup like Narad, the Sanakadik, Shukji, etc., and offer bhakti to God.’ Even if during this process one has to go to dwell in Brahmalok or Indralok, there is nothing to worry about. Because if one goes for ablutions and then falls headfirst into the gutter, one should take a bath and become pure again; one should not remain in the filth. Similarly, if a person harbors pure desires and as a result attains Brahmalok or Indralok, he should think, ‘I have fallen headfirst into the gutter.’ Thinking in this manner, he should discard the pleasures of Brahmalok and Indralok using the strength of his pure desires and make his way to the abode of God. He should resolve not to stop anywhere in between.
+
+“Also, just as the householders or renunciants serve us, we should also realize their greatness. For example, Mulji Brahmachari realizes My greatness and serves Me. In the same way, I realize his greatness. Thus, as the householders serve us by providing food and clothes, we should also realize their greatness and serve them by preaching to them. In this way, we should foster fraternity among devotees of God by realizing each others’ greatness.”
+
+Vachanamrut 47 180
+
+## Footnotes
+
+* 1. , ...
+One should remain in the association of sadhus - even if one has to suffer the pain of a shuli.

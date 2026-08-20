@@ -1,0 +1,29 @@
+# Sarangpur-12: Thinking about the Atma
+
+On Bhadarva sudi 1, Samvat 1877 [8 September 1820], Swami Shri Sahajanandji Maharaj was sitting on a large, decorated cot on the veranda outside the north-facing rooms of Jiva Khachar’s darbar in Sarangpur. He was dressed entirely in white clothes. At that time, an assembly of munis as well as devotees from various places had gathered before Him.
+
+Thereupon Nirvikaranand Swami asked a question, “Which virtues constantly remain in a sadhu, and which virtues come and go?”
+
+Shriji Maharaj replied, “First, there is atma-realization; second, swadharma; and third, faith in God. These three virtues constantly remain in a sadhu, whereas other virtues may come and may go. Thus, while other virtues come and go, these three virtues always remain.”1
+
+Thereafter Muktanand Swami asked, “Why is it that even after understanding the distinction between the body and the atma, one forgets that distinction and continues to identify oneself with the body?”
+
+Shriji Maharaj explained, “Once a person has clearly understood the distinction between the body and the atma, it cannot be forgotten. Even if he believes, ‘I am the body,’ he can no longer accept himself as the body. Also, once he has firmly established the conviction of God, even if he tries to discard it, it cannot be discarded. Furthermore, the notion that his realization of himself as atma has been lost and the belief that he is the body has begun to prevail is simply a misconception of his mind; the belief never actually returns. Such a devotee with perfect gnan is conscious only of his atma. Also, he believes his atma to be brahmarup and that Purushottam Bhagwan - also known as Parabrahma - forever resides in that brahmarup atma. Also, his conviction of God remains forever steady.”
+
+Then Swayamprakashanand Swami asked, “How should one think of one’s atma?”
+
+Shriji Maharaj replied, “When the drashta, i.e., the jivatma, focuses on the antahkaran, it becomes oblivious to the outer, physical body and all of the vishays related to it. Then, with the thought that rests between the antahkaran and the drashta, one should realize the nature of the man, the buddhi, the chitt and the ahamkar. Then, observing the various thoughts within the antahkaran through such a thought process, only when those thoughts cease should one meditate on God’s form. However, as long as those thoughts and desires persist, one should keep observing them, but one should not engage in meditation at that time.
+
+“In addition, when the five gnan-indriyas of the outer, physical body are drawn towards their respective vishays, one should think in two ways: Firstly, one should think about the vishay2 towards which the indriyas have been drawn; secondly, one should think about the drashta3 who watches from the indriyas’ organs. Then, when the former thought of the vishay and the latter thought of the drashta merge into one, one’s vrutti becomes completely detached from the vishays. However, if one does not think in this way and attempts to break one’s vrutti from the vishays forcefully, then the vrutti’s attraction towards the vishays will not be eradicated. On the other hand, if one withdraws one’s vrutti by applying this thought process, one’s vrutti will never again become attached to the vishays. Therefore, as long as one’s indriyas’ vruttis have affection for the vishays, one should avoid meditating on God. Only when the indriyas’ vruttis become stable should one engage in the meditation of God.
+
+“Also, when the drashta is active in the outer sthul body, one should be absolutely clear in making the distinction that, when one is active in the sthul body, one should never look towards the desires arising in the sukshma body; and when one is active in the antahkaran, one should become oblivious of one’s sthul body. Moreover, using the thought which rests between the drashta and drashya, one should realize, ‘The drashta and drashya are absolutely distinct.’ With this understanding, one should ascribe the attributes of the body unto the body and the attributes of the drashta - which is chaitanya - unto chaitanya. Also, childhood, youth, old age, stoutness, thinness, birth and death are all aspects of the body; so they should never be thought of as belonging to the atma. On the other hand, being uncuttable, being un-pierceable, not aging, being immortal, being the embodiment of gnan, being the embodiment of bliss, and being characterized by eternal existence are all aspects of the atma; they should in no way be considered to belong to the body. Instead, those attributes should be understood to belong to the atma.
+
+“Such thoughts should not be abandoned as long as desires and thoughts persist in the antahkaran. Take the example of a king: As long as he is confronted by an enemy, he cannot preside on his throne in peace, nor does he indulge in any pleasures. Only when all of his enemies are conquered does he enjoy the luxuries of his kingdom. Similarly, a devotee of God should firmly keep the aforementioned thought as long as the enemies in the form of his mind and indriyas continue to trouble him. Only when all desires of his mind and indriyas have subsided should he meditate on God.”
+
+Vachanamrut 12 90
+
+## Footnotes
+
+* 1. Vairagya should be included in atma-realization and bhakti should be included in faith in God (nishchay). Hence, the purport is that the four aspects of ekantik dharma - dharma, gnan, vairagya, and bhakti - all remain constantly in a Sant.
+* 2. That the body and the vishays are a form of misery, cause of bondage, perishable, etc.
+* 3. That the atma is eternally blissful, free from all faults, imperishable, etc.
