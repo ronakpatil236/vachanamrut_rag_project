@@ -33,7 +33,7 @@ Running benchmarks across all retrieval strategies revealed a critical architect
 A standard RAG pipeline is great for semantic/situational user prompts, but struggles with explicit entity lookups. To make a RAG system production-ready for sacred texts:
 * **Metadata Filtering:** Extract section identifiers (e.g., `Gadhada I-15`) using regex and apply direct metadata filters in ChromaDB rather than relying on pure vector/keyword search.
 * **Topic Expansion:** Use query transformation to enrich direct lookups with relevant spiritual taxonomy keywords before running hybrid search.
-* 
+
 ## 📁 Repository Structure
 
 ```text
