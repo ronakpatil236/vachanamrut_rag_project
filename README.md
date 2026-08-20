@@ -27,7 +27,7 @@ Running benchmarks across all retrieval strategies revealed a critical architect
    Asking raw direct questions (e.g., *"What does Shriji Maharaj say in Gadhada I-15?"*) yields low retrieval accuracy in the standard retriever. Pure vector search lacks semantic understanding of specific section metadata, while BM25 fails if formatting variations (e.g., `Gadhada 1-15` vs `Gadhada I-15`) exist in the raw scraped chunks.
 
 3. **Query Expansion Bridges the Vocabulary Gap:**
-   Modern user queries use everyday conversational language (e.g., *"I feel jealous of my neighbor's new car"*), whereas the Vachanamrut relies on classical spiritual terminology. Running `transform_query` bridges this language gap by converting modern expressions into scriptural Gujarati keywords (such as *matsar*, *irshya*, *swabhav*, or *eghokh*). This allows BM25 and vector search to match real-world user intent directly to the underlying theological concepts.
+   Modern user queries use everyday conversational language (e.g., *"I feel jealous of my neighbor's new car"*), whereas the Vachanamrut relies on classical spiritual terminology. Running `transform_query` bridges this language gap by converting modern expressions into scriptural Gujarati keywords (such as *matsar*, *irshya*, *swabhav*). This allows BM25 and vector search to match real-world user intent directly to the underlying theological concepts.
 
 ### 🛠️ Production Takeaway
 A standard RAG pipeline is great for semantic/situational user prompts, but struggles with explicit entity lookups. To make a RAG system production-ready for sacred texts:
