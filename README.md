@@ -3,7 +3,7 @@
 Vachanamrut is a principal theological scripture of the Swaminarayan Sampradaya, which has a collection of 273 discourses delivered by Bhagwan Swaminarayan. My project is a production-grade, modular Retrieval-Augmented Generation (RAG) system built to query the sacred Vachanamrut text. 
 This project compares standard dense vector retrieval against a hybrid system (Dense + Sparse BM25), featuring dynamic query expansion and an automated LLM-as-a-Judge evaluation framework.
 
-## 📌 Features
+## Features
 
 * **Hybrid Retrieval:** Integrates ChromaDB (dense semantic search) with BM25 (sparse keyword search) to maximize recall and precision.
 * **Query Transformation:** Expands user queries dynamically to catch complex or ambiguous phrasing across spiritual contexts.
@@ -16,7 +16,7 @@ This project compares standard dense vector retrieval against a hybrid system (D
 <br/><br/>
 <img src="results/scorecard_transformed.png" width="600" alt="Query Transformed Scorecard" />
 
-## 💡 Key Engineering Insights & Tradeoffs
+## Key Engineering Insights & Tradeoffs
 
 Running benchmarks across all retrieval strategies revealed a critical architectural insight regarding **direct lookups** versus **situational queries**:
 
@@ -29,7 +29,7 @@ Running benchmarks across all retrieval strategies revealed a critical architect
 3. **Query Expansion Bridges the Vocabulary Gap:**
    Modern user queries use everyday conversational language (e.g., *"I feel jealous of my neighbor's new car"*), whereas the Vachanamrut relies on classical spiritual terminology. Running `transform_query` bridges this language gap by converting modern expressions into scriptural Gujarati keywords (such as *matsar*, *irshya*, *swabhav*). This allows BM25 and vector search to match real-world user intent directly to the underlying theological concepts.
 
-### 🛠️ Production Takeaway
+### Production Takeaway
 A standard RAG pipeline is great for semantic/situational user prompts, but struggles with explicit entity lookups. To make a RAG system production-ready for sacred texts:
 * **Metadata Filtering:** Extract section identifiers (e.g., `Gadhada I-15`) using regex and apply direct metadata filters in ChromaDB rather than relying on pure vector/keyword search.
 * **Topic Expansion:** Use query transformation to enrich direct lookups with relevant spiritual taxonomy keywords before running hybrid search.
