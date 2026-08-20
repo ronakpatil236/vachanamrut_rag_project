@@ -5,7 +5,6 @@ This project compares standard dense vector retrieval against a hybrid system (D
 
 ## 📌 Features
 
-* **Multi-Chunking Strategies:** Benchmarks recursive character splitting against structural and LLM-assisted document chunking.
 * **Hybrid Retrieval:** Integrates ChromaDB (dense semantic search) with BM25 (sparse keyword search) to maximize recall and precision.
 * **Query Transformation:** Expands user queries dynamically to catch complex or ambiguous phrasing across spiritual contexts.
 * **Automated Evaluation:** Evaluates retrieval depth, answer faithfulness, and context relevance using `gemini-1.5-flash` as a judge.
