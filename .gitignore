@@ -14,3 +14,17 @@ wheels/
 
 # Ignore a specific folder and all its contents
 week5/
+
+# Vector Store DBs
+data/vector_store/
+
+# Raw/Processed Data
+data/raw/
+*.sqlite3
+*.bin
+*.pickle
+
+# Python Environments
+.venv/
+__pycache__/
+*.pyc
