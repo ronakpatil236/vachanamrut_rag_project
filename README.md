@@ -11,11 +11,11 @@ This project compares standard dense vector retrieval against a hybrid system (D
 * **Automated Evaluation:** Evaluates retrieval depth, answer faithfulness, and context relevance using `gemini-1.5-flash` as a judge.
 * **Modular Codebase:** Organized into clean, reproducible steps from raw web scraping to final scorecard generation.
 
-<p align="center">
-  <img src="results/scorecard_dense.png" width="30%" />
-  <img src="results/scorecard_hybrid.png" width="30%" />
-  <img src="results/scorecard_transformed.png" width="30%" />
-</p>
+<img src="results/scorecard_dense.png" width="600" alt="Dense Retrieval Scorecard" />
+<br/><br/>
+<img src="results/scorecard_hybrid.png" width="600" alt="Hybrid Retrieval Scorecard" />
+<br/><br/>
+<img src="results/scorecard_transformed.png" width="600" alt="Query Transformed Scorecard" />
 
 ## 📁 Repository Structure
 
